@@ -6,7 +6,7 @@ Everyone loves the perks of Amazon Prime, from fast shipping to endless movies a
 
 Whether you’re a student, a savvy shopper, or simply someone who loves a good deal, read on to discover everything you need to know about unlocking free Amazon Prime and taking full advantage of its awesome features. 🎉
 
-[**📌📌CLICK HERE ➤➤FREE AMAZON PRIME✅**](ozilia.github.io/free-amazon-prime)
+[**📌📌CLICK HERE ➤➤FREE AMAZON PRIME✅**](https://ozilia.github.io/free-amazon-prime/)
 
 ## Free Amazon Prime
 
@@ -56,7 +56,7 @@ We believe in providing only genuine and safe opportunities for our users. Here�
 
 👉 Bottom Line: You’re in safe hands. We only share legitimate ways to enjoy Free Amazon Prime!
 
-[**📌📌CLICK HERE ➤➤FREE AMAZON PRIME✅**](ozilia.github.io/free-amazon-prime)
+[**📌📌CLICK HERE ➤➤FREE AMAZON PRIME✅**](https://ozilia.github.io/free-amazon-prime/)
 
 ### Frequently Asked Questions (FAQ)
 
